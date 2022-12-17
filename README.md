@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @SKABvr
+- 👀 I’m 16
+- 🦊 I’m Furry
+- 💞️ I am learning how to code and program bot's on discord
+- 📫 Discord: SKAB#0621
+- <3
